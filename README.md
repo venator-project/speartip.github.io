@@ -1,1 +1,0 @@
-# SpearTIP home page
